@@ -11,6 +11,6 @@ I´m Axel, I have been a developer of content for the Minecraft bedrock marketpl
 -Can make for a good leader in a pinch, but I prefer being more of a support for the team
 -If I put my mind to something I won´t sleep until I get it done in the best state i possibly can
 
-##My youtube channel in case you wanna see some of the stuff I do
 
-[github readme on prifile](https://www.youtube.com/@Axelpvz2030)
+
+##[My youtube channel in case you wanna see some of the stuff I do](https://www.youtube.com/@Axelpvz2030)
